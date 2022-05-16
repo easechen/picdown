@@ -5,7 +5,7 @@
 
 https://www.meitu131.com/
 
-https://www.mmonly.cc/ 
+https://www.mmonly.cc/ （已失效）
 
 ## 截图
 
